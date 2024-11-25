@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @lagando
-- 👀 bao
-- 🌱 I’m currently learning sl, hobby
+- 👀 bao?
+- 🌱 To aprendendo sl, hobby
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me gabrielbahiapro@gmail.com
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 📫 Meu email ae papai: gabrielbahiapro@gmail.com
+- 😄 
+- ⚡ Fun fact: fiz 1 tiktok 1 vez
 
 <!---
 lagando/lagando is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

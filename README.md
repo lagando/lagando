@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @lagando
 - 👀 bao?
 - 🌱 To aprendendo sl, hobby
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ... sla q porra quero fazer
 - 📫 Meu email ae papai: gabrielbahiapro@gmail.com
 - 😄 
 - ⚡ Fun fact: fiz 1 tiktok 1 vez

@@ -3,7 +3,7 @@
 - 🌱 To aprendendo sl, hobby
 - 💞️ I’m looking to collaborate on ... sla q porra quero fazer
 - 📫 Meu email ae papai: gabrielbahiapro@gmail.com
-- 😄 
+- 😄 https://www.linkedin.com/in/gabrielbahiagb/
 - ⚡ Fun fact: fiz 1 tiktok 1 vez
 
 <!---
